@@ -2,6 +2,6 @@
 
 im camera and im cute 😄 (my mommy said so)
 
-join my discord server (and boost): https://discord.gg/kAG7Y7VqEQ
+I like C++, C#, and HTML but I dont do a lot of coding :3
 
-can someone convert 24km to american
+dsvm blfi olhg rm gsv wzipmvhh, ollp uli gsv ortsg
